@@ -1,4 +1,4 @@
-# Title
+# Traditional Goulash Recipe
 # Hungarian goulash
 
 ## Ingredients
@@ -13,7 +13,6 @@
 
 ## Instructions
 
-### Traditional Goulash Recipe
 
 1. **Sauté the base:** Cook finely chopped onions in fat, remove from the heat, and stir in plenty of sweet paprika.
 2. **Brown the beef:** Add diced beef, season with salt and caraway seeds, and cook until the meat is browned all over.
