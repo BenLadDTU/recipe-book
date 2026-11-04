@@ -9,6 +9,7 @@
 - **1** onion
 - **Salt** to taste
 - olive oil
+- 4 cloves of garlic (disgusting though)
 
 ## Instructions
 
@@ -18,4 +19,4 @@
 4. Drain the potatoes and onion well to remove any excess of oil, then add the mixture to the bowl with the eggs. Set the oil aside for the next step.
 5. Heat a frying pan over high heat with a little of the reserved olive oil. Once hot, add the egg and potato mixture, keeping the pan in constant motion. Reduce the heat to the lowest setting, add a little more oil, and flip the mixture over. Repeat the process few times until the external layer is cooked.
 6. Do not cook it for too long if you want the inside to be a bit more raw.
-7. Let it rest for several minutes before slicing.
+7. Let it rest for several minutes before slicing. Add the garlic cloves on top of the tortilla. Enjoy!
